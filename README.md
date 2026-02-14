@@ -1,4 +1,4 @@
-]# 💕 Us Forever 💕
+j]# 💕 Us Forever 💕
 
 A celebration of our beautiful love story and all the precious moments we've shared.
 
@@ -105,7 +105,7 @@ Test your knowledge about us! Answer these questions:
 ---
 
 ## 💌 A Message to My Love
-i never leave in any situation 
+i never leave you in any situation 
 this my promise which i don't want to miss in my .all over the year set - back us we will be the definite love version.untill my last breath i want to live with you and as your's 
 will you be my better half??❤
 
