@@ -1,16 +1,108 @@
-# Getting Started with GitHub Copilot
+# 💕 Us Forever 💕
 
-<img src="https://octodex.github.com/images/Professortocat_v2.png" align="right" height="200px" />
-
-Hey @1750!
-
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
-
-Remember, it's self-paced so feel free to take a break! ☕️
-
-[![](https://img.shields.io/badge/Go%20to%20Exercise-%E2%86%92-1f883d?style=for-the-badge&logo=github&labelColor=197935)](https://github.com/001750/skills-getting-started-with-github-copilot/issues/1)
+A celebration of our beautiful love story and all the precious moments we've shared.
 
 ---
 
-&copy; 2025 GitHub &bull; [Code of Conduct](https://www.contributor-covenant.org/version/2/1/code_of_conduct/code_of_conduct.md) &bull; [MIT License](https://gh.io/mit)
+## 📖 Our Love Story Timeline
+
+### 🎯 July 12, 2017
+**The Day I Fell in Love**
+The moment my heart knew it was you. This date marks the beginning of my feelings for you.
+
+### 👀 January 1, 2018
+**When You Started Noticing Me**
+New year, new beginning. You started to see me in a way that changed everything.
+
+### 💕 August 13, 2018
+**Our First Date & Personal Meet**
+The day we officially started dating. Our first in-person meeting and outing together. This moment made everything real.
+
+### 🎭 November 22, 2025
+**Our Special Afternoon Movie**
+We watched a movie together in the afternoon and stayed sighting together till 12 AM at night. A magical long night with you. ✨
+
+### 📍 March 5, 2020
+**Beginning of Long-Distance Love**
+Distance may separate us, but our hearts remain connected. This marks our long-distance journey together.
+
+### 📸 August 29, 2025
+**Our First Selfie Together**
+Capturing a moment, capturing our love. The first photo of us together that we proudly took.
+
+---
+
+## 🎮 Funny Love Quiz
+
+Test your knowledge about us! Answer these questions:
+
+### Question 1: When did we first meet?
+- A) July 12, 2017
+- B) August 13, 2018 ✅
+- C) January 1, 2018
+- D) November 22, 2025
+
+### Question 2: Are you really loving me?
+- A) Maybe
+- B) Sometimes
+- C) Only on Tuesdays
+- D) Absolutely YES! Always! 💕✅
+
+---
+
+## 💌 A Message to My Love
+
+No matter the distance, no matter t# 💕 Us Forever 💕
+
+A celebration of our beautiful love story and all the precious moments we've shared.
+
+---
+
+## 📖 Our Love Story Timeline
+
+### 🎯 July 12, 2017
+**The Day I Fell in Love**
+The moment my heart knew it was you. This date marks the beginning of my feelings for you.
+
+### 👀 January 1, 2018
+**When You Started Noticing Me**
+New year, new beginning. You started to see me in a way that changed everything.
+
+### 💕 August 13, 2018
+**Our First Date & Personal Meet**
+The day we officially started dating. Our first in-person meeting and outing together. This moment made everything real.
+
+### 🎭 November 22, 2025
+**Our Special Afternoon Movie**
+We watched a movie together in the afternoon and stayed sighting together till 12 AM at night. A magical long night with you. ✨
+
+### 📍 March 5, 2020
+**Beginning of Long-Distance Love**
+Distance may separate us, but our hearts remain connected. This marks our long-distance journey together.
+
+### 📸 August 29, 2025
+**Our First Selfie Together**
+Capturing a moment, capturing our love. The first photo of us together that we proudly took.
+
+---
+
+## 🎮 Funny Love Quiz
+
+Test your knowledge about us! Answer these questions:
+
+### Question 1: When did we first meet?
+- A) July 12, 2017
+- B) August 13, 2018 ✅
+- C) January 1, 2018
+- D) November 22, 2025
+
+### Question 2: Are you really loving me?
+- A) Maybe
+- B) Sometimes
+- C) Only on Tuesdays
+- D) Absolutely YES! Always! 💕✅
+
+---
+
+## 💌 A Message to My Love
 
